@@ -1,2 +1,2 @@
-# Bot NuclearX
+# NuclearX Facção
 Olá, essa aplica
