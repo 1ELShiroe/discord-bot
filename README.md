@@ -1,2 +1,2 @@
-# :biohazard:	 NuclearX Facção
+# :biohazard:	 EL NuclearXz
 Olá, essa aplica
